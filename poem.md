@@ -12,5 +12,3 @@ And all that matters feels quite near.
 
 So take this moment, hold it close,
 For time moves on—we know it goes.
-But here, right now, we have this breath:
-A small eternity before the rest.
